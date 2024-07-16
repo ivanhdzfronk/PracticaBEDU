@@ -4,7 +4,7 @@
 
 ---
 
-![Doctora trabajando en su clínica de oftalmología](https://img.freepik.com/foto-gratis/doctora-trabajando-su-clinica-oftalmologia_23-2149082457.jpg?t=st=1721103069~exp=1721106669~hmac=dc8e789e1a66f5d871188a95e4722f42beb1faa4285cc33cf889be7346228322&w=2000)
+![Doctora trabajando en su clínica de oftalmología](https://www.pexels.com/es-es/foto/mujer-sin-rostro-lente-objetivo-5715887/)
 
 **[Nombre del Cliente], tu salud visual te espera**
 
