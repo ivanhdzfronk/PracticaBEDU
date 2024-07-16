@@ -4,7 +4,7 @@
 
 ---
 
-![Doctora trabajando en su clínica de oftalmología](https://www.pexels.com/es-es/foto/mujer-sin-rostro-lente-objetivo-5715887/)
+![Doctora trabajando en su clínica de oftalmología](https://images.pexels.com/photos/5715887/pexels-photo-5715887.jpeg?auto=compress&cs=tinysrgb&w=1260&h=750&dpr=2)
 
 **[Nombre del Cliente], tu salud visual te espera**
 
